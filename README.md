@@ -250,4 +250,4 @@ For questions or support:
 
 ---
 
-**Live Creative** - Collegiate Society of Advertising 
+**Live Creative** - Collegiate Society of Advertising
